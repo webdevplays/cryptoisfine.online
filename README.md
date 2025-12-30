@@ -1,2 +1,2 @@
-# cryptoisfine.online
+# fartguy
 
